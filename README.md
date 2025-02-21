@@ -3,7 +3,7 @@
 
 >  ![IMG_9377](https://github.com/user-attachments/assets/a18d1395-27a1-4928-b145-9cfe81aafaf3)     _scar!!_ ^_^
 >
-> i luv motogp ![IMG_9389](https://github.com/user-attachments/assets/7cd6dbfe-8947-48b2-84cf-c1d8bd92955c)
+> million dollar baby!  ![IMG_9389](https://github.com/user-attachments/assets/7cd6dbfe-8947-48b2-84cf-c1d8bd92955c)
 
 > 
 >  int c+h anytime im cool fr :33 ![IMG_9392](https://github.com/user-attachments/assets/6d7473fc-3599-48bd-ac69-c7fbf43987da)
