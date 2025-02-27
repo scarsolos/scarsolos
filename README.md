@@ -7,8 +7,6 @@
 >
 > **big motogp fan 🤓**
 >
-> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=nmycgwbr9x891mtbg1fhu2qd6&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=005300&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
 >  ![IMG_9444](https://github.com/user-attachments/assets/3314e37c-540a-406e-a8e3-74b8926ffb69)
 > 
 > ![IMG_9376](https://github.com/user-attachments/assets/a3d5dd71-aedd-4d20-a8a8-ed476cbe064b)
