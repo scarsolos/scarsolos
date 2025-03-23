@@ -5,7 +5,7 @@
 >
 > **talk to me in french, talk to me in spanish !**  ![IMG_9389](https://github.com/user-attachments/assets/7cd6dbfe-8947-48b2-84cf-c1d8bd92955c)
 >
-> **big motogp fan & f1  🤓**
+> **big motogp & f1 fan 🤓**
 > 
 > [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=nmycgwbr9x891mtbg1fhu2qd6&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 > 
