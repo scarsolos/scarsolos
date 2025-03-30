@@ -8,7 +8,8 @@
 > 
 > [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=nmycgwbr9x891mtbg1fhu2qd6&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 > 
-> ![IMG_9781](https://github.com/user-attachments/assets/cd5dc545-f9ef-4592-aeb2-9074a33e4a7d)
+> ![IMG_9803](https://github.com/user-attachments/assets/99ffeb9b-755b-4b55-a9b6-001711da3f73)
+
 >   **for pt check out my strawpages, sign my atabook has slightly bright colours, rentry ( has main strawpage, letteroxd, old carrd!!)**
 >
 > **please don't copy my ponies !!**
