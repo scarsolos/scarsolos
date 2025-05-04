@@ -10,7 +10,7 @@
 > 
 > ![IMG_9803](https://github.com/user-attachments/assets/99ffeb9b-755b-4b55-a9b6-001711da3f73)
 
->   **for pt check out my strawpages, sign my atabook has slightly bright colours, rentry ( has main strawpage, letteroxd, old carrd!!)**
+>   **for pt check out my strawpages, sign my atabook has slightly bright colours, rentry ( has main strawpage, letteroxd )**
 >
 > **please don't copy my ponies !!**
 > 
